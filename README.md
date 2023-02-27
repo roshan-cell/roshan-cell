@@ -6,5 +6,5 @@
 - 👯 I’m looking to collaborate on Linkedin
 - 💬 Ask me about Web Dev or Any tech related stuff
 - 📫 How to reach me: Linkedin - roshan14
-- 😄 Pronouns: He/His
+
 
